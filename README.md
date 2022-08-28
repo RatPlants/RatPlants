@@ -1,0 +1,5 @@
+-  Hey, I’m @RatPlants (aka Vee)
+- I really like psycological horror games
+- I’m currently learning how to make one
+- I’m looking to collaborate on most anything. Just show me something and I'll probably like it
+- You can reach me through email, IsntAJynx@gmail.com, but I forget to check it half the time so you can find me on insta with the same name (isntajynx)
